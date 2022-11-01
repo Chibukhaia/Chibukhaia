@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Chibukhaia (Mariam)
-- 👀 I’m interested in sports = {volleyball, basketball, tabletennis and tennis}, Computer_ games = { Witcher, Crush}, Reading and Music. 
+- 👀 I’m interested in sports = (volleyball, basketball, tabletennis and tennis), Computer_ games = ( Witcher, Crush), reading = (drama, thriller, horror), Music= (indie rock, pop) and Anime = (*unpacking list)
 - 🌱 I’m currently learning Python and Estonian language. 
 - 📫 You can reach me via Email: m.chibukhaia@gmail.com
